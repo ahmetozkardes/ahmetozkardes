@@ -61,12 +61,4 @@ Through university courses, I’ve been introduced to:
 
 ---
 
-## 💬 Mindset
-
-> “Consistency beats intensity.”  
-
-I focus on steady, long-term improvement.
-
----
-
 ⭐ Thanks for visiting my profile.
